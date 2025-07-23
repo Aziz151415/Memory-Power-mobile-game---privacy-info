@@ -1,0 +1,1 @@
+# Memory-Power-mobile-game---privacy-info
