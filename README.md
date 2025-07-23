@@ -1,1 +1,1 @@
-# Memory-Power-mobile-game---privacy-info
+# Memory-Power-privacy-
